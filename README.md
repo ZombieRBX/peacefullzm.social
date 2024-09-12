@@ -1,0 +1,2 @@
+# peacefullzm.social
+ez
